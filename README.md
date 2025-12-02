@@ -81,7 +81,7 @@ Mon objectif : **donner vie aux idées** grâce à un design moderne, efficace e
 ### 🔹 Identité visuelle 
 
 Résumé : Création complète d’une identité visuelle moderne (logo, palette, typographies, mockups).
-🔗 **Lien :** [Ajoute ton lien ici]
+
 
 
 ### 🔹 Affiches & Print – *Campagne publicitaire*
