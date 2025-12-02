@@ -87,7 +87,7 @@ Résumé : Création complète d’une identité visuelle moderne (logo, palette
 ### 🔹 Affiches & Print – *Campagne publicitaire*
 
 Résumé : Série d’affiches conformes à une charte graphique professionnelle pour diffusion print & digital.
-🔗 **Lien :** [[Ajoute ton lien ici]](https://www.linkedin.com/in/oussama-chtiteh/)
+🔗 **Lien :** (https://www.linkedin.com/in/oussama-chtiteh/)
 
 📂 **Plus de projets sur Behance :**
 👉 [https://behance.net/oussamaChitteh](https://behance.net/oussamaChitteh)
