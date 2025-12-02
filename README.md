@@ -97,7 +97,7 @@ Résumé : Série d’affiches conformes à une charte graphique professionnelle
 ## 📬 Me contacter
 
 📧 **[chitteh@gmail.com](mailto:chitteh@gmail.com)**
-📱 **06 0207 9899**
+📱 **06 0207 4989**
 📍 Casablanca – Maroc
 🔗 **Behance :** [https://behance.net/oussamaChitteh](https://behance.net/oussamaChitteh)
 
